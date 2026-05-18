@@ -1,1 +1,1 @@
-This is 925's blog
+This is a 925's? page?
